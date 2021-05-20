@@ -1,2 +1,2 @@
-ChangJo&&&20213064
+20213064 ChangJo
 Kookmin Univ. SW Dept.
